@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AkshaSinha a 3rd year CS students pursuing AIML 
+- 👋 Hi, I’m @AkshaSinha a 4th year CS students pursuing AIML 
 - 💞️ I’m looking to collaborate on AIML and Blockchain Projects!
 - 📫 How to reach me-> shoot me a mail akshtsinh@gmail.com
 
